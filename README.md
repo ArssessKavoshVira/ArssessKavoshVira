@@ -1,5 +1,5 @@
 - 👋 Hi, we are @ArssessKavoshVira
-- 👀 We are interested in colaborative project
+- 👀 We are interested in colaborative projects
 - 💞️ We are looking to collaborate on profitable projects
 - 📫 contact us via email: arssesskavoshvirafarnood@gmail.com
 - 😄 Pronouns: Company
