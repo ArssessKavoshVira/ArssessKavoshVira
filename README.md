@@ -1,7 +1,7 @@
 - 👋 Hi, we are @ArssessKavoshVira
 - 👀 We are interested in colaborative projects
 - 💞️ We are looking to collaborate on profitable projects
-- 📫 contact us via email: arssesskavoshvirafarnood@gmail.com
+- 📫 contact us via email: arseskavoshvira@gmail.com
 - 😄 Pronouns: Company
 - ⚡ Fun fact: NotYet
 
